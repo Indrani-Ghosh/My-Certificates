@@ -1,2 +1,2 @@
 # My-Certificates
-Above I have attached all my certificates.
+All my certifications are available here.
